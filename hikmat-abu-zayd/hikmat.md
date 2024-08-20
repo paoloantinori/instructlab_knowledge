@@ -11,7 +11,9 @@ Nationality Egyptian Stateless (1970s–1991) Political party Arab
 Socialist Union Spouse Muhammad Al Sayyad Alma mater Cairo University
 (B.A., 1940) University of Edinburgh (diploma) University of St Andrews
 (M.A., 1950) University of London (doctorate, 1957) Profession Professor
-Military service Allegiance Egypt Battles/wars Suez War Hikmat Abu Zayd
+Military service Allegiance Egypt Battles/wars Suez War.
+
+Hikmat Abu Zayd
 (Arabic: حكمت أبو زيد; pronounced Hekmat Abu Zeid in Egyptian Arabic;
 1922 or 1923 – 30 July 2011)\[N\] was an Egyptian politician and
 academic. She became the first female cabinet minister in Egypt in 1962.
